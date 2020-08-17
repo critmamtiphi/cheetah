@@ -15,4 +15,4 @@ Female cheetahs typically have a litter of three cubs and live with them for one
 
 Most wild cheetahs are found in eastern and southwestern Africa. These populations are under pressure as the wide-open grasslands they favor are disappearing at the hands of human settlers.
 
-![Branching]
+![Branching](jmfgjfgj.jpg)
